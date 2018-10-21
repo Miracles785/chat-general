@@ -1,4 +1,5 @@
-# chat-general
-Chat en general de discord
-No hay practicamente nada
-solo estaba intentando hacer algo xd
+Actualizaciones del servidor 🐱‍👤
+
+~ Servidor "MANITO 2" de discord ~
+
+/ Todavia no hay actualizaciones /
